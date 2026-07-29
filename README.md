@@ -7,7 +7,7 @@
   <img width="600" height="600" alt="626366858-b2495faa-e026-4bb4-8d2c-ec0f93e2666b-Photoroom" src="https://github.com/user-attachments/assets/ff87794e-0102-4a4d-9b9b-26518044f6fd" />
     
 <div align="right">
-Mimi, Gumi, Ivan, Toph & Sprout fictkin! 
+Mimi, Gumi, Ivan, Toph & Sprout ficthearted! 
  <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=FDFBD4&background=FFFFFF00&center=true&multiline=true&width=435&lines=please+do+read+this+doc+before+leaving+my+github+!" alt="Typing SVG" /></a></p> https://docs.google.com/document/d/1TDlYJAzJYcsrq3kH-zyQvo4QSI-HOJTcrXMg9fT_bIo/edit?pli=1&tab=t.0
 
 
