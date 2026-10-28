@@ -7,7 +7,7 @@
    <div align="center">
    <img src="https://komarev.com/ghpvc/?username=pearlsbytheshore&color=FDFBD4&style=plastic-square&label=cael+is+gay+and+likes+femboys" alt="Profile Views">
   <div align="left">
-  <img src="blob:chrome-untrusted://media-app/59282541-74d2-42b0-9c08-28b65fafc450"/><img width="352" height="289" alt="image" src="https://github.com/user-attachments/assets/49d04621-eb09-4ace-8dca-c831f81a1c82" /> i kin mimi 😀
+  <img src="blob:chrome-untrusted://media-app/59282541-74d2-42b0-9c08-28b65fafc450"/><img width="352" height="289" alt="image" src="https://github.com/user-attachments/assets/49d04621-eb09-4ace-8dca-c831f81a1c82" /> i kin mimi (and Ribbit and Toph)😀
     
 plz note that I only friend someone if I've grown comfortable with their presence and have talked to them for some time! ^^
  <div align="center">
