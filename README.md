@@ -4,7 +4,7 @@
 <div align="center">
 <img width="487" height="380" alt="image" src="https://github.com/user-attachments/assets/9628a680-e4ec-4fa6-9dec-f699a16482b3" />
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
-                                                         <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ariel+Code&weight=200&size=19&pause=1000&color=898989&width=435&lines=%22you+still+playing+the+role+of+the+hero?%22;%22shut+your+mouth+and+just+fight.%22" alt="Typing SVG" /></a>
+                                                         <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Merriweather+Code&weight=100&size=19&pause=1000&color=898989&width=435&lines=%22you+still+playing+the+righteous+hero+?%22;%22shut+your+mouth+and+just+fight.%22" alt="Typing SVG" /></a>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
    crds: saigonopafu on x
    <div align="center">
