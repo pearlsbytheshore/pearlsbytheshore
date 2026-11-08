@@ -3,8 +3,9 @@
 [˖°𓇼atabook˖°𓇼](https://pexrlsbytheshore.atabook.org/)
 <div align="center">
 <img width="487" height="380" alt="image" src="https://github.com/user-attachments/assets/9628a680-e4ec-4fa6-9dec-f699a16482b3" />
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=898989&background=FFFFFF00&center=true&multiline=true&width=435&lines=you+still+playing+the+righteous+hero+?" alt="Typing SVG" /></a></p>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=898989&background=FFFFFF00&center=true&multiline=true&width=435&lines=shut+your+mouth+and+just+fight+." alt="Typing SVG" /></a></p>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
+                                                         <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ariel+Code&weight=200&size=19&pause=1000&color=898989&width=435&lines=%22you+still+playing+the+role+of+the+hero?%22;%22shut+your+mouth+and+just+fight.%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
    crds: saigonopafu on x
    <div align="center">
       
