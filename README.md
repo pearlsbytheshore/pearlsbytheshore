@@ -3,13 +3,16 @@
 [˖°𓇼atabook˖°𓇼](https://pexrlsbytheshore.atabook.org/)
 <div align="center">
 <img width="487" height="380" alt="image" src="https://github.com/user-attachments/assets/9628a680-e4ec-4fa6-9dec-f699a16482b3" />
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=8989894&background=FFFFFF00&center=true&multiline=true&width=435&lines=gay" alt="Typing SVG" /></a></p>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=https%3A%2F%2Ffonts.google.com%2Fshare%3Fselection.family%3DYuyu';&size=13&duration=3000&pause=1000&color=898989&background=FFFFFF00&center=true&multiline=true&width=435&lines=gay" alt="Typing SVG" /></a></p>
+   crds: saigonopafu on x
    <div align="center">
-   <img src="https://komarev.com/ghpvc/?username=pearlsbytheshore&color=FDFBD4&style=plastic-square&label=cael+is+gay+and+likes+femboys" alt="Profile Views">
-  <div align="left">
-  <img src="blob:chrome-untrusted://media-app/59282541-74d2-42b0-9c08-28b65fafc450"/><img width="352" height="289" alt="image" src="https://github.com/user-attachments/assets/49d04621-eb09-4ace-8dca-c831f81a1c82" /> i kin mimi (and Ribbit and Toph)😀 doubles feel free to int!^^
+      
+   <img src="https://komarev.com/ghpvc/?username=pearlsbytheshore&color=CBCBCB&style=plastic-square&label=eyeballs" alt="Profile Views">
+  <div align="center">
+i kin mimi (and Ribbit and Toph)😀 doubles feel free to int!^^
     
 plz note that I only friend someone if I've grown comfortable with their presence and have talked to them for some time! ^^
+ <div align="center">
 If we don't talk anymore it is likely that I will unfriend you, please do not take it to offense!
  <div align="center">
 plz iwec if ur under 11 and over 25 yrs 
