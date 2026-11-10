@@ -8,11 +8,10 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
    crds: saigonopafu on x
    <div align="center">
-      
    <img src="https://komarev.com/ghpvc/?username=pearlsbytheshore&color=CBCBCB&style=plastic-square&label=eyeballs" alt="Profile Views">
   <div align="center">
 i kin mimi (and Ribbit and Toph)😀 doubles feel free to int!^^
-    
+     <div align="center">
 plz note that I only friend someone if I've grown comfortable with their presence and have talked to them for some time! ^^
  <div align="center">
 If we don't talk anymore it is likely that I will unfriend you, please do not take it to offense!
